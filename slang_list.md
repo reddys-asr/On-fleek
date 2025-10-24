@@ -1,0 +1,322 @@
+# Gen Z and Gen Alpha Slang Words with Meanings
+
+## Gen Z Slang (Popular Terms from ~1997-2012 Birth Years)
+
+Gen Z slang often revolves around social media, memes, and digital culture. Here's a list of common words and phrases with meanings:
+
+- **Lit**: Exciting, fun, or excellent (e.g., "That party was lit!").
+- **Flex**: To show off or boast about something (e.g., "He's always flexing his new car.").
+- **Yeet**: To throw something with force or enthusiasm (e.g., "Yeet that ball across the field!").
+- **Salty**: Bitter, upset, or resentful (e.g., "She's salty because she lost the game.").
+- **Ghost**: To disappear without explanation, often in relationships or conversations (e.g., "He ghosted me after our date.").
+- **Spill the tea**: Share gossip or juicy information (e.g., "Spill the tea on what happened last night!").
+- **On fleek**: Perfect or flawless (e.g., "Her eyebrows are on fleek.").
+- **Savage**: Brutally honest or ruthless in a cool way (e.g., "That comeback was savage.").
+- **Bae**: "Before anyone else," a term of endearment for a romantic partner (e.g., "You're my bae.").
+- **Sus**: Suspicious or shady (e.g., "That story sounds sus.").
+- **No cap**: No lie or telling the truth (e.g., "No cap, that's the best movie ever.").
+- **Bet**: Agreement or okay (e.g., "Bet, I'll meet you there.").
+- **Slay**: To do something exceptionally well (e.g., "You slayed that presentation.").
+- **Glow up**: A positive transformation, often in appearance (e.g., "She had a major glow up over the summer.").
+- **Vibe**: The atmosphere or feeling of something (e.g., "This place has a good vibe.").
+- **Lowkey**: Secretly or subtly (e.g., "I'm lowkey excited about this.").
+- **Highkey**: Obviously or openly (e.g., "I'm highkey tired.").
+- **Extra**: Over the top or dramatic (e.g., "That outfit is so extra.").
+- **Thirsty**: Desperate for attention or validation (e.g., "He's always thirsty for likes.").
+- **Woke**: Aware of social injustices or current events (e.g., "Stay woke about climate change.").
+- **Cancel**: To boycott or ostracize someone for bad behavior (e.g., "People are trying to cancel that celebrity.").
+- **Simp**: Someone who does too much for someone they like, often unreciprocated (e.g., "He's such a simp for her.").
+- **Rizz**: Charisma or romantic appeal (e.g., "He has mad rizz.").
+- **Ate**: Did something exceptionally well (e.g., "She ate that performance.").
+- **Periodt**: Emphasizing that something is final or true (e.g., "That's the best, periodt.").
+- **Tea**: Gossip or information (e.g., "What's the tea?").
+- **Clap back**: To respond sharply to criticism (e.g., "She clapped back hard.").
+- **Drip**: Stylish outfit or fashion (e.g., "That drip is fire.").
+- **Fire**: Amazing or high quality (e.g., "This song is fire.").
+- **GOAT**: Greatest of all time (e.g., "Michael Jordan is the GOAT.").
+- **Iconic**: Legendary or unforgettable (e.g., "That moment was iconic.").
+- **Mood**: Something relatable (e.g., "This meme is mood.").
+- **Queen**: Someone amazing or deserving respect (e.g., "She's a queen.").
+- **Shade**: Subtle insult (e.g., "She threw shade at him.").
+- **Snatched**: Perfect or well-groomed (e.g., "Her makeup is snatched.").
+- **Zesty**: Flamboyant or extra (e.g., "That outfit is zesty.").
+- **Boomer**: Old-fashioned or out-of-touch person (e.g., "Don't be such a boomer.").
+- **Boomerang**: Someone who comes back after ghosting (e.g., "He boomeranged me.").
+- **Curve**: To reject someone romantically (e.g., "She curved him hard.").
+- **Finsta**: Fake Instagram account for close friends (e.g., "Post it on your finsta.").
+- **Rinsta**: Real Instagram account (e.g., "My rinsta is public.").
+- **Slide into DMs**: Send a flirtatious direct message (e.g., "He slid into my DMs.").
+- **Throw shade**: Insult subtly (e.g., "She threw shade at the haters.").
+- **Zaddy**: Attractive older man (e.g., "He's a total zaddy.").
+- **Zoomer**: A Gen Z person (e.g., "Zoomers love TikTok.").
+- **Adulting**: Doing adult responsibilities (e.g., "Adulting is hard.").
+- **FOMO**: Fear of missing out (e.g., "I have FOMO for that party.").
+- **JOMO**: Joy of missing out (e.g., "I'm embracing JOMO.").
+- **Karen**: Entitled or demanding woman (e.g., "She's acting like a Karen.").
+- **NPC**: Non-player character; someone unoriginal (e.g., "He's such an NPC.").
+- **Ratio**: When replies greatly outnumber likes (e.g., "That tweet got ratioed.").
+- **Receipts**: Proof or evidence (e.g., "Show me the receipts.").
+- **Ship**: To support a romantic pairing (e.g., "I ship them so hard.").
+- **Soft launch**: Subtle announcement of a relationship (e.g., "They did a soft launch.").
+- **AF**: As f*** (intensifier) (e.g., "That's lit AF.").
+- **Basic**: Unoriginal or mainstream (e.g., "That's so basic.").
+- **Bish**: Playful way to say "bitch" (e.g., "Oh bish.").
+- **Clap**: Show approval (e.g., "Clap for that.").
+- **Dank**: High-quality meme (e.g., "That meme is dank.").
+- **Dead**: Hilarious (e.g., "I'm dead.").
+- **Drag**: To insult (e.g., "She dragged him.").
+- **Fam**: Close friends or family (e.g., "What's up fam?").
+- **Flex on**: Show off to someone (e.g., "Flex on your ex.").
+- **Gucci**: Good or cool (e.g., "That's gucci.").
+- **Hype**: Excited or promote (e.g., "Get hype!").
+- **Ice**: Jewelry or style (e.g., "That ice is cold.").
+- **Jerk**: To tease (e.g., "Don't jerk me.").
+- **Kermit**: To cry uncontrollably (e.g., "Kermit the frog.").
+- **Lit AF**: Very exciting (e.g., "Party was lit AF.").
+- **Major key**: Very important (e.g., "That's major key.").
+- **Noob**: Beginner or inexperienced (e.g., "He's a noob.").
+- **On point**: Perfect (e.g., "Your outfit is on point.").
+- **Pop off**: Succeed greatly (e.g., "She popped off.").
+- **Quaking**: Shaking from laughter (e.g., "Quaking rn.").
+- **Roast**: Insult humorously (e.g., "Roast him.").
+- **Savage AF**: Very savage (e.g., "That comeback was savage AF.").
+- **Throw hands**: Fight (e.g., "They threw hands.").
+- **Vibing**: Relaxing or enjoying (e.g., "Just vibing.").
+- **Woke AF**: Very aware (e.g., "Stay woke AF.").
+- **X**: Former partner (e.g., "My ex.").
+- **YOLO**: You only live once (e.g., "YOLO!").
+- **Zoned**: Ignored (e.g., "He zoned me.").
+- **Bae goals**: Ideal couple (e.g., "They are bae goals.").
+- **Big mood**: Very relatable (e.g., "Big mood.").
+- **Blessed**: Lucky (e.g., "Feeling blessed.").
+- **Body goals**: Ideal body (e.g., "She has body goals.").
+- **Cancel culture**: Boycotting bad people (e.g., "Cancel culture at work.").
+- **Clap for her**: Support (e.g., "Clap for her slay.").
+- **Dank memes**: Funny memes (e.g., "Dank memes only.").
+- **Deadass**: Seriously (e.g., "Deadass, that's true.").
+- **Drag queen**: Performer (e.g., "Drag queen show.").
+- **Face card**: Attractive face (e.g., "Face card never declines.").
+- **Glowed up**: Improved appearance (e.g., "She glowed up.").
+- **High fashion**: Luxury fashion (e.g., "High fashion week.").
+- **Influencer**: Social media star (e.g., "TikTok influencer.").
+- **Janky**: Poor quality (e.g., "That phone is janky.").
+- **Kicking it**: Hanging out (e.g., "Kicking it with friends.").
+- **Lituation**: Exciting situation (e.g., "What a lituation.").
+- **Main character**: Center of attention (e.g., "I'm the main character.").
+- **No filter**: Unfiltered opinion (e.g., "No filter mode.").
+- **Out of pocket**: Inappropriate (e.g., "That was out of pocket.").
+- **Petty**: Small-minded (e.g., "That's petty.").
+- **Queen energy**: Confident (e.g., "Channeling queen energy.").
+- **Real talk**: Honest conversation (e.g., "Real talk, you're wrong.").
+- **Savage mode**: Ruthless (e.g., "Savage mode on.").
+- **Thirst trap**: Sexy photo (e.g., "Thirst trap alert.").
+- **Unbothered**: Not caring (e.g., "Living unbothered.").
+- **Viral**: Popular online (e.g., "That video went viral.").
+- **Woke up like this**: Natural beauty (e.g., "Woke up like this.").
+- **Xtra**: Extra (e.g., "Xtra spicy.").
+- **Yass**: Yes enthusiastically (e.g., "Yass queen!").
+- **Zoned out**: Distracted (e.g., "Zoned out in class.").
+- **A1**: Top quality (e.g., "That outfit is A1.").
+- **Bag**: Money or style (e.g., "Secure the bag.").
+- **Bounce**: Leave (e.g., "Time to bounce.").
+- **Cap no cap**: Seriously (e.g., "Cap no cap, that's true.").
+- **Dope**: Cool (e.g., "That beat is dope.").
+- **Fresh**: New or stylish (e.g., "Fresh kicks.").
+- **G**: Friend (e.g., "What's up G?").
+- **Heat**: Gun or trouble (e.g., "Pack heat.").
+- **Ill**: Sick or cool (e.g., "That trick is ill.").
+- **Jacked**: Stolen (e.g., "Jacked the car.").
+- **Kill it**: Do well (e.g., "Kill it on stage.").
+- **Lame**: Uncool (e.g., "That's lame.").
+- **Mad**: Angry (e.g., "He's mad.").
+- **Nasty**: Gross or good (e.g., "Nasty burger.").
+- **Off**: Weird (e.g., "That's off.").
+- **Phat**: Fat or cool (e.g., "Phat beats.").
+- **Quick**: Fast (e.g., "Quick draw.").
+- **Rad**: Radical (e.g., "Rad idea.").
+- **Sick**: Cool (e.g., "Sick ride.").
+- **Tight**: Cool (e.g., "Tight performance.").
+- **Ugly**: Bad (e.g., "Ugly situation.").
+- **Vicious**: Cool (e.g., "Vicious flow.").
+- **Wicked**: Cool (e.g., "Wicked awesome.").
+- **X-rated**: Explicit (e.g., "X-rated movie.").
+- **Yummy**: Attractive (e.g., "Yummy guy.").
+- **Zany**: Crazy (e.g., "Zany idea.").
+- **Ace**: Excellent (e.g., "Ace performance.").
+- **Beast**: Powerful (e.g., "Beast mode.").
+- **Chill**: Relax (e.g., "Chill out.").
+- **Dude**: Friend (e.g., "Hey dude.").
+- **Epic**: Amazing (e.g., "Epic fail.").
+- **Fly**: Stylish (e.g., "Fly outfit.").
+- **Gang**: Friends (e.g., "My gang.").
+- **Hella**: Very (e.g., "Hella cool.").
+- **Jam**: Party (e.g., "Jam session.").
+- **Kool**: Cool (e.g., "Kool kid.").
+- **Litty**: Very lit (e.g., "Litty party.").
+- **Max**: Maximum (e.g., "Max effort.").
+- **Neat**: Cool (e.g., "Neat trick.").
+- **Omg**: Oh my god (e.g., "Omg!").
+- **Posh**: Fancy (e.g., "Posh hotel.").
+- **Rad AF**: Very rad (e.g., "Rad AF.").
+- **Swag**: Style (e.g., "Swag on point.").
+- **Tubular**: Cool (e.g., "Tubular waves.").
+- **Ultra**: Extreme (e.g., "Ultra fast.").
+- **Vibes**: Feelings (e.g., "Good vibes.").
+- **Amped**: Excited (e.g., "Amped up.").
+- **Bold**: Confident (e.g., "Bold move.").
+- **Crisp**: Clean (e.g., "Crisp shirt.").
+- **Dashing**: Stylish (e.g., "Dashing look.").
+- **Elite**: Top tier (e.g., "Elite gamer.").
+- **Funky**: Weird but cool (e.g., "Funky beat.").
+- **Gritty**: Tough (e.g., "Gritty film.").
+- **Hip**: Cool (e.g., "Hip style.").
+- **Jazzy**: Stylish (e.g., "Jazzy outfit.").
+- **Keen**: Interested (e.g., "Keen on it.").
+
+## Gen Alpha Slang (Popular Terms from ~2013-2025 Birth Years)
+
+Gen Alpha slang is heavily influenced by TikTok, YouTube, and internet memes. Here's a list based on current trends:
+
+- **Skibidi**: A nonsense term often used as gibberish or for emphasis, originating from the YouTube series "Skibidi Toilet" (e.g., "Skibidi bop bop yes yes!").
+- **Six-Seven**: A nonsensical exclamation, often shouted when hearing the numbers 6 and 7, tied to a song and basketball player LaMelo Ball (e.g., "Six-seven!").
+- **Bop**: An offensive term for someone (usually a young woman) seen as promiscuous (e.g., "She's the school bop." – Note: This is derogatory and not recommended for use.).
+- **Aura**: A "cool" factor or star power; can refer to charisma or style points (e.g., "He has so much aura.").
+- **Unc**: Short for "uncle," used humorously to indicate someone is old or out of touch (e.g., "That outfit makes you look like unc.").
+- **Rizz**: Romantic charm or appeal (e.g., "She rizzed him up at the party.").
+- **Mog**: To outclass or outperform someone, especially in looks or skills (e.g., "He mogged everyone in the photo.").
+- **Brainrot**: Mindless or harmful digital content that affects mental health (e.g., "Too much TikTok gives me brainrot.").
+- **Delulu**: Short for "delusional," meaning audaciously self-confident or having unrealistic beliefs (e.g., "I'm delulu about winning the lottery.").
+- **Mew**: Cute or adorable (e.g., "That cat is so mew.").
+- **Mewing**: A facial technique to improve jawline (e.g., "He's mewing for better looks.").
+- **Fanum tax**: Taking a bite of someone's food (e.g., "He fanum taxed my fries.").
+- **Ohio**: Something weird or bad (e.g., "That's so Ohio.").
+- **Sigma**: A self-reliant, lone wolf type (e.g., "He's a sigma male.").
+- **Looksmaxxing**: Improving one's appearance (e.g., "He's looksmaxxing.").
+- **Edge**: Being cool or rebellious (e.g., "He's got edge.").
+- **Mewtwo**: A variant or upgraded version (e.g., "That's mewtwo level.").
+- **Grimace shake**: Referring to the McDonald's item or something gross (e.g., "That looks like grimace shake.").
+- **Alpha**: Dominant or leader (e.g., "He's the alpha of the group.").
+- **Beta**: Submissive or follower (e.g., "Don't be such a beta.").
+- **Cooked**: Embarrassed or defeated (e.g., "He got cooked in the debate.").
+- **Edgy**: Cool in a dark or unconventional way (e.g., "That joke is edgy.").
+- **Gyatt**: Exclamation for an attractive butt (e.g., "Gyatt!").
+- **Mewed**: Having improved jawline (e.g., "He looks mewed.").
+- **Pookie**: Term of endearment (e.g., "Hey pookie.").
+- **Rizzler**: Someone with lots of rizz (e.g., "He's a rizzler.").
+- **Skibidi rizz**: Nonsense combo for charm (e.g., "He has skibidi rizz.").
+- **Sigma rule**: Lone wolf philosophy (e.g., "Live by the sigma rule.").
+- **Gigachad**: Ideal, hyper-masculine man (e.g., "He's a gigachad.").
+- **Wojak**: Sad frog meme representing sadness (e.g., "Feeling like a wojak.").
+- **Pepe**: Frog meme (e.g., "Rare pepe.").
+- **Based**: Unapologetically yourself or agreeing (e.g., "That's based.").
+- **Redpilled**: Awakened to harsh truths (e.g., "He got redpilled.").
+- **Cope**: Deny reality or make excuses (e.g., "Stop coping.").
+- **Betrayed**: Feeling betrayed (e.g., "I'm betrayed.").
+- **Clowned**: Made fun of (e.g., "He got clowned.").
+- **Drip check**: Compliment someone's outfit (e.g., "Drip check passed.").
+- **E-boy**: Emo boy style (e.g., "He's an e-boy.").
+- **F in chat**: Pay respects (e.g., "F in chat.").
+- **Giga**: Big or exaggerated version (e.g., "Giga chad.").
+- **Hater**: Jealous person (e.g., "Haters gonna hate.").
+- **Ick**: Gross feeling (e.g., "Gave me the ick.").
+- **Jit**: Young person (e.g., "That jit is wild.").
+- **Kpop**: Korean pop music (e.g., "Love Kpop.").
+- **L**: Loss or failure (e.g., "Took an L.").
+- **Mid**: Average or mediocre (e.g., "That's mid.").
+- **No cap fr**: No lie, for real (e.g., "No cap fr.").
+- **Op**: Overpowered or strong (e.g., "That build is op.").
+- **Pog**: Excited (e.g., "Poggers!").
+- **Queen bee**: Popular girl (e.g., "She's the queen bee.").
+- **Rizz up**: Flirt with (e.g., "Rizz her up.").
+- **Sigma grindset**: Lone wolf mindset (e.g., "Sigma grindset activated.").
+- **T pose**: Victory pose (e.g., "T pose for the win.").
+- **UwU**: Cute expression (e.g., "UwU").
+- **Vibe check**: Assess someone's mood (e.g., "Vibe check failed.").
+- **W**: Win (e.g., "Big W.").
+- **Xd**: Laughing (e.g., "Xd").
+- **Yapping**: Talking a lot (e.g., "Stop yapping.").
+- **Zoom**: Video call (e.g., "Jump on zoom.").
+- **Adhd**: Attention deficit (e.g., "Adhd brain.").
+- **Bae watch**: Stalking ex (e.g., "Bae watch activated.").
+- **Cap**: Lie (e.g., "No cap.").
+- **Delusional**: Unrealistic (e.g., "That's delusional.").
+- **E-girl**: Emo girl style (e.g., "She's an e-girl.").
+- **Fan behavior**: Obsessive fan (e.g., "Fan behavior.").
+- **Giga brain**: Smart idea (e.g., "Giga brain moment.").
+- **Hate watch**: Watch something you hate (e.g., "Hate watching that show.").
+- **Icked out**: Grossed out (e.g., "Icked out.").
+- **Jerk off**: Masturbate (vulgar) (e.g., "Jerk off.").
+- **Kitten**: Cute girl (e.g., "She's a kitten.").
+- **L bozo**: Loser (e.g., "L bozo.").
+- **Mew three**: Further upgrade (e.g., "Mew three level.").
+- **No thoughts head empty**: Mindless (e.g., "No thoughts head empty.").
+- **Op pressed**: Overpowered (e.g., "Op pressed.").
+- **Pogchamp**: Excited (e.g., "Pogchamp!").
+- **Queen slay**: Amazing (e.g., "Queen slay.").
+- **Rizz god**: Master of charm (e.g., "Rizz god.").
+- **Sigma female**: Lone wolf girl (e.g., "Sigma female.").
+- **Tiktok famous**: Viral on TikTok (e.g., "Tiktok famous.").
+- **UwU girl**: Cute girl (e.g., "UwU girl.").
+- **Vibe killer**: Ruins mood (e.g., "Vibe killer.").
+- **W rizz**: Winning charm (e.g., "W rizz.").
+- **Xd face**: Laughing face (e.g., "Xd face.").
+- **Yolo swag**: Reckless style (e.g., "Yolo swag.").
+- **Zoomer energy**: High energy (e.g., "Zoomer energy.").
+- **Aight**: Alright (e.g., "Aight, let's go.").
+- **Bussin**: Delicious (e.g., "This food is bussin.").
+- **Cringe**: Embarrassing (e.g., "That's cringe.").
+- **Drip too hard**: Overdressed (e.g., "Drip too hard.").
+- **E date**: Online date (e.g., "E date tonight.").
+- **Fyp**: For you page (e.g., "On fyp.").
+- **Gf**: Girlfriend (e.g., "My gf.").
+- **Hmu**: Hit me up (e.g., "Hmu later.").
+- **Idk**: I don't know (e.g., "Idk.").
+- **Jk**: Just kidding (e.g., "Jk!").
+- **K**: Okay (e.g., "K.").
+- **Lfg**: Let's f*** go (e.g., "Lfg!").
+- **Mfs**: Mother f***ers (e.g., "Those mfs.").
+- **Ngl**: Not gonna lie (e.g., "Ngl, it's good.").
+- **Oml**: Oh my lord (e.g., "Oml!").
+- **Pfp**: Profile picture (e.g., "Change pfp.").
+- **Qrt**: Quote retweet (e.g., "Qrt this.").
+- **Rn**: Right now (e.g., "Rn.").
+- **Smh**: Shaking my head (e.g., "Smh.").
+- **Tbh**: To be honest (e.g., "Tbh, yes.").
+- **Uwu**: Cute (e.g., "Uwu.").
+- **Vsco girl**: Aesthetic girl (e.g., "Vsco girl vibes.").
+- **Wtf**: What the f*** (e.g., "Wtf?").
+- **Xoxo**: Hugs and kisses (e.g., "Xoxo.").
+- **Yk**: You know (e.g., "Yk what I mean.").
+- **Zzz**: Sleeping (e.g., "Zzz.").
+- **Ate that**: Did well (e.g., "Ate that challenge.").
+- **Bet me**: Challenge (e.g., "Bet me you can't.").
+- **Cook**: Prepare food or do well (e.g., "Cook dinner.").
+- **Drip god**: Stylish (e.g., "Drip god.").
+- **Edge lord**: Edgy person (e.g., "Edge lord.").
+- **Fan girl**: Obsessive fan (e.g., "Fan girl scream.").
+- **Glow**: Shine (e.g., "Glow up.").
+- **Hypebeast**: Fashion enthusiast (e.g., "Hypebeast.").
+- **Icon**: Influential person (e.g., "Icon status.").
+- **Jock**: Athlete (e.g., "School jock.").
+- **King**: Respected guy (e.g., "King of the group.").
+- **Legend**: Hero (e.g., "Living legend.").
+- **Mogger**: Someone who mogs (e.g., "Mogger.").
+- **Noob sauce**: Beginner (e.g., "Noob sauce.").
+- **Op af**: Very op (e.g., "Op af.").
+- **Pog u**: You pog (e.g., "Pog u.").
+- **Queen vibes**: Confident (e.g., "Queen vibes.").
+- **Rizz check**: Test charm (e.g., "Rizz check.").
+- **Sigma vibes**: Lone wolf (e.g., "Sigma vibes.").
+- **Trendsetter**: Sets trends (e.g., "Trendsetter.").
+- **Aura check**: Assess coolness (e.g., "Aura check.").
+- **Brainrot alert**: Warning for bad content (e.g., "Brainrot alert.").
+- **Cooked well**: Did great (e.g., "Cooked well.").
+- **Delulu dreams**: Unrealistic hopes (e.g., "Delulu dreams.").
+- **Edge master**: Very edgy (e.g., "Edge master.").
+- **Fanum moment**: Taking food (e.g., "Fanum moment.").
+- **Glow check**: Compliment appearance (e.g., "Glow check.").
+- **Hype train**: Excited group (e.g., "Hype train.").
+- **Iconic move**: Legendary action (e.g., "Iconic move.").
+- **Jit energy**: Young energy (e.g., "Jit energy.").
+
+Note: Slang evolves rapidly, especially on platforms like TikTok and Instagram. This is not an exhaustive "all on earth" list, as new terms emerge daily and vary by region/culture. For the most up-to-date info, check sources like Urban Dictionary or Merriam-Webster's slang section. If you need more details on specific terms or examples, let me know!
